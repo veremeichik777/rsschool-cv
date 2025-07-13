@@ -6,10 +6,14 @@
 
 
 ### **Contact information:**
-
 ***Minsk, Belarus***
+
 ***Email: veremeichik2019@gmail.com***
+
 ***Github: Yauheni Verameichyk***
+
 ***Telegram: @evgeniyveremeichik***
+
 ***Discord: Veremeichik***
+
 ***Mobile: +375447112103***
